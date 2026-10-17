@@ -14,3 +14,6 @@ Pesan: Semoga kebersamaan ini nggak berhenti sampai kegiatan selesai, dan bisa j
 [Kesan: Senang bisa jadi bagian dari Cluster 20 karena bisa kenal teman-teman baru, saling membantu, dan berbagi pengalaman bareng.
 
 Pesan: Semoga Cluster 20 makin kompak, tetap saling support, dan bisa punya banyak kenangan seru bersama sampai kegiatan selesai.]
+
+## Harapan Kuliah
+[Harapanku selama kuliah semoga bisa terus berkembang, mendapat banyak pengalaman dan teman baru, serta bisa melewati setiap tantangan dengan baik. Semoga aku bisa lulus tepat waktu dan meraih cita-cita yang aku inginkan.]
